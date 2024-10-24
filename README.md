@@ -9,7 +9,6 @@
 
 - ⚡ Fun fact **I am a perfectionist, I love learning and I always look for ways to continue improving.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
